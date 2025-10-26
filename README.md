@@ -36,7 +36,7 @@ When I’m not coding, I’m probably reading, journaling,or nerding out on some
 
 
 ### ☕ Let’s connect
-💼 [LinkedIn](linkedin.com/in/malek-mezbour-254180320)  
+💼 [LinkedIn](https://www.linkedin.com/in/malek-mezbour-254180320/)  
 📧 mezbourmalak@gmail.com
 💬 “Building my future one commit at a time.”  
 
