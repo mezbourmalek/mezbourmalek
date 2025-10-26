@@ -1,4 +1,4 @@
-# 💫 Hey, I’m Malak  
+# 💫 Hey, I’m Malek  
 
 ✨ Tech girl with a Data-Driven mind  
 🎓 Computer Engineering student • Data Science major  
