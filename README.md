@@ -9,6 +9,7 @@
 ### 💻 What I’m up to
 🌱 Learning Machine Learning & Data Science  
 🚀 Exploring the vast world of tech. Constantly learning, evolving, and creating along the way 💻🌱 
+
 🎯 Preparing for my next chapter: ....??
 
 ---
